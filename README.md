@@ -9,6 +9,6 @@
 
 目前来说，AI可以轻松胜任你的外语助教，让我们行动起来吧！！！
 
-活动地址：https://wwww.philtmy.top
+活动地址：https://www.philtmy.top
 
 快来和我一起学习起来吧。
